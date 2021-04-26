@@ -4,7 +4,7 @@ Compilacion de los mejores grupos y canales de telegram
 
 ## SERIES
 
-[Series De Los 90 📺](https://t.me/joinchat/6Fb1I9cFHqgwMGRh)
+[Series De Los 90 📺](https://t.me/c/1260977067/7487)
 
 ![image](https://user-images.githubusercontent.com/49499429/116021928-35ae3500-a617-11eb-9c9e-f78f4b44b546.png)
 
@@ -17,6 +17,10 @@ Compilacion de los mejores grupos y canales de telegram
 [XixinMovies (Streaming) Latino 🇲🇽](https://t.me/XixinMoviesS)
 
 ![image](https://user-images.githubusercontent.com/49499429/116022871-0dbfd100-a619-11eb-9c64-cfa72644ecf3.png)
+
+[Peliculas Latino Streaming](https://t.me/c/1267836748/5844)
+
+![image](https://user-images.githubusercontent.com/81868766/116025154-d3a4fe00-a61d-11eb-83d3-f1dca90978c3.png)
 
 ## CURSOS
 
