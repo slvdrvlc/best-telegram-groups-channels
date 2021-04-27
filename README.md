@@ -4,7 +4,7 @@ Compilacion de los mejores grupos y canales de telegram
 
 ## SERIES
 
-[Series De Los 90 📺](https://t.me/c/1260977067/7487)
+[Series De Los 90 📺](https://t.me/joinchat/6Fb1I9cFHqgwMGRh)
 
 ![image](https://user-images.githubusercontent.com/49499429/116021928-35ae3500-a617-11eb-9c9e-f78f4b44b546.png)
 
